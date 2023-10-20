@@ -10,7 +10,7 @@
 ## Education:
 
 #### 1. [Universitas Gadjah Mada](https://www.ugm.ac.id) | Master of Mathematics 
-#### 2. [Universitas Negeri Makassar](https://www.unm.ac.id) | MIPA | Kebumen `2013-2016`
+#### 2. [Universitas Negeri Makassar](https://www.unm.ac.id) |
    
 
 ## Work Experience:
